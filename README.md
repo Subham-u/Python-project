@@ -1,2 +1,13 @@
 
 ![CS PROJECT_page-0009](https://github.com/Subham-u/Python-project/assets/75112434/aa7c857f-f263-4043-8e2c-217aa4574841)
+![CS PROJECT_page-0010](https://github.com/Subham-u/Python-project/assets/75112434/e935ee28-baf2-42fe-907e-5b1d4ce5f6f4)
+![CS PROJECT_page-0011](https://github.com/Subham-u/Python-project/assets/75112434/afc59742-20ff-4c60-9c8c-8f65b4fa6593)
+![CS PROJECT_page-0012](https://github.com/Subham-u/Python-project/assets/75112434/95116150-aef4-439b-9cca-b5b6650c7b55)
+![CS PROJECT_page-0013](https://github.com/Subham-u/Python-project/assets/75112434/8d4cdaff-44a3-49ef-89b3-4c112f005367)
+![CS PROJECT_page-0014](https://github.com/Subham-u/Python-project/assets/75112434/2fa6238d-6443-4531-90d8-a14ea2c88130)
+![CS PROJECT_page-0015](https://github.com/Subham-u/Python-project/assets/75112434/7aaefe3b-32ff-4fbe-b1cd-e68d681fa94d)
+![CS PROJECT_page-0016](https://github.com/Subham-u/Python-project/assets/75112434/ea0ff55b-bd97-4b7c-80f2-a7d748b8ba77)
+![CS PROJECT_page-0017](https://github.com/Subham-u/Python-project/assets/75112434/79d54bd0-8f13-4b51-ac60-9f6be09c0b3e)
+![CS PROJECT_page-0018](https://github.com/Subham-u/Python-project/assets/75112434/9930937e-18e9-43b3-a3e1-9fbbbf687b0f)
+![CS PROJECT_page-0019](https://github.com/Subham-u/Python-project/assets/75112434/7802cbb2-4f9f-401e-b6a3-cfadd475bfcc)
+![CS PROJECT_page-0020](https://github.com/Subham-u/Python-project/assets/75112434/168a57a4-b5a0-444f-945a-8d57ac490cca)
